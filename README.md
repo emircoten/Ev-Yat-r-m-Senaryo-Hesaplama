@@ -1,0 +1,1 @@
+# Ev-Yat-r-m-Senaryo-Hesaplama
